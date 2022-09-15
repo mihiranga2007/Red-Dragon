@@ -1,7 +1,7 @@
 <p align="center">
 <img src="./Android/database/K.Prabhasha.gif" alt="Loading..." width="320"/>
 <p align="center">
-<img src="https://i.ibb.co/CwffZ61/20220605-104552.jpg" alt="nz" width="350"/>
+<img src="https://telegra.ph/file/4532702ffa469ae5e9398.jpg" alt="nz" width="350"/>
 </p>
 
 ## 𝙍𝙀𝘿╺ 𝘿𝙍𝘼𝙂𝙊𝙉 -𝗕𝗢𝗧࿐   Version 12.0
